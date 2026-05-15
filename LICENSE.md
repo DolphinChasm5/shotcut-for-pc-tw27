@@ -1,4 +1,4 @@
-# 
+# automatic Shotcut for PC | Shotcut for Windows Transition | color-correction + LUT-support offers the most advanced Shotcut for PC | Shotcut for Windows transition, with
 
 
 
